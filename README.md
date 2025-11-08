@@ -18,8 +18,8 @@ like this your still in-doctrinated by design.
 Iko ivi, I am going to be sharing with you a secret to unlock a new life experience, ili uachane na kushindana kimawazo. 
 Maisha sio mashindano, maisha ni kuelewa mifumo yake ili upata experience nzuri ya maisha atakama changamoto ziki kukuta. 
 
-Siri hii ya mafanikio najua ndio kitu kikubwa wengi wenu mnakitafuta. Ndio, Notice nimesema wengi wenu, kwasababu sisi sio kama nyie, elewa hili, Kwasababu ukisha elewa hili
-baada yakuelewa Malengo ya Nyaraka hii utakuwa kama sisi, na ukisha KUWA huwezi kuridi nyuma tena. 
+Siri hii ya mafanikio **najua ndio kitu kikubwa wengi wenu mnakitafuta**. Ndio, Notice nimesema wengi wenu, kwasababu **sisi sio kama nyie**, elewa hili, Kwasababu ukisha elewa hili
+baada yakuelewa Malengo ya Nyaraka hii utakuwa kama sisi, na ukisha **KUWA** huwezi kuridi nyuma tena. 
 
 **SASA ngoja nitimize ahadi yangu yakukupa wewe siri ya mafanikio**
 
@@ -27,14 +27,16 @@ baada yakuelewa Malengo ya Nyaraka hii utakuwa kama sisi, na ukisha KUWA huwezi 
 
 Okay lets move on
 
-Kuna vita kubwa inaendelea Dunia kila wakati na ni muhimu uelewe vita hii niya nini. Dunia inakupigania wewe, Ndio WEWE HAPO. Najua bado huja nisoma
-sasa elewa hivi. Wewe ni rasilimali kama rasilimali zingine, Kwasababu gani sasa? Wewe ni mmiliki wa Ardhi, na kama wewe sio ujue kwamba wewe ni mfanyakazi 
-wa wake. Na ili uwe mfanya kazi bora ni very Important au Imperative usijue kuwa wewe ni mmiliki wa Ardhi hio. Ndio maana kuna Kanuni na Sheria Na mipaka 
-Kajifunze the GAME THEORY kwenye. Sasa nisi kuchoshe.
+Kuna vita kubwa inaendelea Dunia kila wakati na ni muhimu uelewe vita hii niya nini. Dunia inakupigania wewe, **Ndio WEWE HAPO**. Najua bado huja nisoma
+sasa elewa hivi. Wewe ni rasilimali kama rasilimali zingine, Kwasababu gani sasa? **Wewe ni mmiliki wa Ardhi**, na kama wewe sio ujue kwamba wewe ni **mfanyakazi 
+wake**. Na ili uwe mfanya kazi bora ni very Important au Imperative **usijue kuwa wewe ni mmiliki wa Ardhi hio**. Ndio maana kuna Kanuni na Sheria Na mipaka 
+Kajifunze the **GAME THEORY**. Sasa nisi kuchoshe.
 
-Tambua hili, Nataka kukusaidia kuwatambua maadui zako. Ukisha wajua utakua na nafasi yakujiokoa wewe na vizazi vyako. Wewe pekeyako hauna Nguvu, UMMA ndio ina nguvu
-lakini UMMA nirahisi kusambaratishwa kama hai tambui maadui zake. Hence ndio maana Afrika mpaka watu wake wanapinganiwa. Kwanini? nimesha kujuza awali - ILI KUSUDI WACHUKUE ARDHI YAO
-sasa wewe bishana. Iko ivi, watu wasio na uumoja nirahisi kuwavuruga ili wasijue siri ya mafanikio ambayo ni __ Rudi kusoma hapo juu.👆🏾 
+Tambua hili, Nataka kukusaidia kuwatambua maadui zako wanao taka **kuchukua Umiliki wa Ardhi yako**. Ukisha wajua utakua na nafasi yakujiokoa wewe na vizazi vyako. 
+Wewe **pekeyako hauna Nguvu**, UMMA ndio ina nguvu lakini **UMMA nirahisi kusambaratishwa kama hai tambui maadui zake**. Hence ndio maana Afrika mpaka leo watu wake wanapinganiwa.
+Kwanini? nimesha kujuza awali,**ILI KUSUDI WACHUKUE ARDHI YAO** sasa wewe bishana. 
+
+Iko ivi, **watu wasio na uumoja nirahisi kuwavuruga ili wasijue siri ya mafanikio ambayo ni** __ Rudi kusoma hapo juu.👆🏾 
 
 lengo na **MANIFESTO** hii nikwajili yetu - Kwani sisi ni wewe na Nyinyi na wale. Elewa hii Ndio maana ninachangaja kiswahili na Kingereza. Kumbuka Hii sio jaribio hii nifumo 
 inayo takiwa kuvunjwa na ninakwenda kukuonyesheni **MAADUI WETU NI NANI** Na jinsi yaku watambua hili kuuanzia leo usi **bakwe** Akili nakubishania Ujinga usio kuletea mafanikio
@@ -44,20 +46,18 @@ _
 UMASIKINI (Poverty) and UJINGA (Ignorance) are not mere flaws.
 They are systmes forged by hands of **Demand and Supply**, tightened by **self-serving** **markets.** 
 
-# Be careful you don't look at it as flaw, don't fight it as an emeny, No. Understand it for 
+# Be careful you don't look at hii mifumo as flaws, don't fight them as an emeny, No. Understand it for 
 # what it is. A system. 
 
 A systme has governance, au protocol kwa lugha rahisi. Utaratibu ndio msingi wa
 systme yeyote, kuanzia ya duni mpaka ya juu.
-<img width="912" height="530" alt="Screenshot 2025-11-08 at 12 53 42" src="https://github.com/user-attachments/assets/37082925-26bf-4162-a9c7-7e44fca76019" />
 
+**Sasa Elewa pia UMASIKINI is a vampire system: It drains your harvest, pawns your land, and sells your future at x% interest.**
 
-Sasa Elewa pia UMASIKINI is a vampire system: It drains your harvest, pawns your land, and sells your future at x% interest.
-
-UJINGA is a blindfold (Kiini Macho): It traps your children in schools that teach obedience, feeds you lies on airwaves, and make you a tenant in your own soil, a puppet in your own story.
+UJINGA is a blindfold (Kiini Macho): It traps your children in schools that teach obedience, feeds you lies on airwaves, and make you a tenant in your own soil, a puppet in your own story. 
+They are the common enemy.
  <img width="975" height="620" alt="Screenshot 2025-11-08 at 11 52 25" src="https://github.com/user-attachments/assets/97658fac-e94b-4b4c-9815-0354832f87ef" />
 
-They are the common enemy.
 # We do not clash with each other.
 # We unite behind a common enemy
 
@@ -74,12 +74,14 @@ kutojenga jenga mifumo ya maarifa yaku boresha maisha ya Ardhi.
 Kuharibu kwa chuki maisha ya wengine.
 
 # Mfumo wa UJINGA unajengwa kwa
-Shule zinazofundisha utii, si ujuzi.
+**Shule zinazofundisha utii, si ujuzi.**
 <img width="1062" height="561" alt="Screenshot 2025-11-08 at 12 10 51" src="https://github.com/user-attachments/assets/871cb1c2-0d74-431d-bb4c-7b9c3ded9f11" />
 
-Mitandao zinazolisha uongo na umbea, kuliko maarifa.
+**Mitandao zinazolisha uongo na umbea, kuliko maarifa.**
+<img width="972" height="556" alt="Screenshot 2025-11-08 at 12 19 50" src="https://github.com/user-attachments/assets/b9d2e717-cb60-48ea-b6c3-c3936561bf1c" />
 
-Katiba ulioundwa bila uzalendo.
+**Katiba ulioundwa bila uzalendo.**
+<img width="972" height="566" alt="Screenshot 2025-11-08 at 12 17 42" src="https://github.com/user-attachments/assets/11db0c2f-5cdd-4722-a548-5b9a0336466f" />
 
 # Kwa Pamoja hii mifumo ndio ADUI wetu 
 Mifumo ya kutufanya wageni katika ardhi yetu.
