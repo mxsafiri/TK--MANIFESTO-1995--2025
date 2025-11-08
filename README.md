@@ -55,33 +55,26 @@ systme yeyote, kuanzia ya duni mpaka ya juu.
 **Sasa Elewa pia UMASIKINI is a vampire system: It drains your harvest, pawns your land, and sells your future at x% interest.**
 
 UJINGA is a blindfold (Kiini Macho): It traps your children in schools that teach obedience, feeds you lies on airwaves, and make you a tenant in your own soil, a puppet in your own story. 
-They are the common enemy.
+**Hawa ndio MAADUI WENU**.
  <img width="975" height="620" alt="Screenshot 2025-11-08 at 11 52 25" src="https://github.com/user-attachments/assets/97658fac-e94b-4b4c-9815-0354832f87ef" />
 
-# We do not clash with each other.
-# We unite behind a common enemy
-
-UMASIKINI si hali. Ni mfumo.
-UJINGA si makosa. Ni mfumo.
 
 # Mfumo wa UMASIKINI unajengwa kwa
-Kutosaidiana kwa haki kutoka kwenye maisha ya duni pamoja.
+**Kutosaidiana kwa haki kutoka kwenye maisha ya duni pamoja.**
 
-Kutochukia Hali ya maisha ya duni binafsi. 
+**Kutochukia Hali ya maisha ya duni binafsi.** 
 
-kutojenga jenga mifumo ya maarifa yaku boresha maisha ya Ardhi.
+**kutojenga jenga mifumo ya maarifa yaku boresha maisha ya Ardhi.**
 
-Kuharibu kwa chuki maisha ya wengine.
+**Kuharibu kwa chuki maisha ya wengine.**
 
 # Mfumo wa UJINGA unajengwa kwa
 **Shule zinazofundisha utii, si ujuzi.**
-<img width="1062" height="561" alt="Screenshot 2025-11-08 at 12 10 51" src="https://github.com/user-attachments/assets/871cb1c2-0d74-431d-bb4c-7b9c3ded9f11" />
 
 **Mitandao zinazolisha uongo na umbea, kuliko maarifa.**
-<img width="972" height="556" alt="Screenshot 2025-11-08 at 12 19 50" src="https://github.com/user-attachments/assets/b9d2e717-cb60-48ea-b6c3-c3936561bf1c" />
 
 **Katiba ulioundwa bila uzalendo.**
-<img width="972" height="566" alt="Screenshot 2025-11-08 at 12 17 42" src="https://github.com/user-attachments/assets/11db0c2f-5cdd-4722-a548-5b9a0336466f" />
+
 
 # Kwa Pamoja hii mifumo ndio ADUI wetu 
 Mifumo ya kutufanya wageni katika ardhi yetu.
@@ -92,69 +85,30 @@ hawa ndio maadui wa pamoja tunao takiwa kuwapinga kwa nguvu zetu zote mpaka kifo
 Hatupigani sisi kwa sisi.
 Tunavunja systme izi mbili tu.
 
+Ngoja nikuchote Akili kidogo. Je, Unajua kuwa **Duniani kuna script?** Mindset yaku inaweza kubadilisha vitu katika maisha yako.
+hii ni phenomal kubwa kwa maisha ya karne hii. Maisha yetu yana **tofauti kubwa na exposure ya dunia**. So naturally dunia yako 
+inakuwa ina **infiriorty conflict** kwasabau wewe hujaandika **hio script ya reality yako.** Sio kesi tusiende uko.
+
+Nachojaribu Kukuonesha kwa upeo wako uone, **sisi tuko wengi**. Wewe, watu kama wewe na mimi. Fantasy ya maisha yetu na,
+**miundo-mbinu yetu** **haiwezi kutupatia wote**.**Huduma sawa, katika ubora sawa, kwa mahitaji yetu wote**. Sasa ukisha meza hilo, 
+
+karibu nikoneshe njisi gani ni muhimu kutambua **mazingira yako**. Sio kwa kutoka nje bali hadi **tabia zako na wazazi wako na watu wezanko
+na dunia nzima** ili ujue kwa nini, iko ivo. Ndio, hadi kabila lako, wenginewenu mtajifanya hamna kabila, jiulize kwanini waafirka wana makabila. 
+Nataka uelewe ili utambue. Unakumbuka hapo juu nilikwabia **UMMA ndio ina nguvu**. Kujilinda nikulindana, hio ni siri nyinge nakuibia ya ndani.
+Jamii zinazo zungumza Lugha mmoja, ningumu sana kutawaliwa. **Lunga ni Operating Systme ya UBONGO**.
+
+Siwezi kukwabia kila kitu ila tambua hii ni safari umeanza, yote unayo yataka utayapata. **Mtanzamo wako ndio tofauti yako na kituchako unacho
+kitaka**. Soma tena hio sentensi. Muongope Mungu, Au kama wewe mbishi sana ogopa idea ya "UMUNGU" Heshimu kitu chochote watu wanacho kiamini 
+Imani inaleta **MATUMAINI yani HOPE**. Sasa Safari yako, **shida zako za maishani** na malezi yako. Kuwa muangalifu yasikufanye uwe na fikira potovu.
+
+
 ## Hili ni Azimio la Ujenzi wa Tabia Maendeleo ya Jamii za Kiswahili
 Wa-Tanzania Bara, Visiwani, na Kanda ya Ziwa – huu ni mpango halisi wa ujenzi, unaotegemea tabia za Kiswahili 
 (kama umoja, kujitegemea, na hekima ya ardhi) ili kuvunja mfumo wa UMASIKINI na UJINGA.
 
-# II. THE LAND: OUR BLOOD AND BONES
-We are not of the world(Sisi si walimwengu) The world(walimwengu)is a machine that chews land into 
-## profit and spits out debt.
-<img width="972" height="566" alt="Screenshot 2025-11-08 at 12 17 42" src="https://github.com/user-attachments/assets/d91bd852-63f6-4621-b386-23855f49516a" />
-
-We are of the land — the red soil of Morogoro, Kagera, Mara, Mbeya the dams of Dodoma, the roots that drink deep.
+We are of the land — the red soil of Morogoro, Kagera, Mara, Mbeya the shores of zanzibar, the roots that drink deep.
 # Every acre we hold is a fortress reclaimed.
 # Every mind we sharpen is a spear against the dark.
 # The land does not lie. It does not betray.
 # It asks only that we work it, own it, defend it.
 
-Sisi hatuko wa dunia, sisi tupo Duniani. Tambua Dunia ni mashine inayotafuna ardhi kuwa faida na kutoa deni.
-<img width="758" height="346" alt="Screenshot 2025-11-08 at 12 49 42" src="https://github.com/user-attachments/assets/ebbb4f1a-91ec-4cfb-b8b3-c32fe91cde9a" />
-
-# SASA NI KUPE MFANO IMAGINE SCRIPT HII KIJIJI CHA TAMU KALI
-Azimio la Ujenzi wa Tabia Maendeleo ya Jamii za Kiswahili
-Wa-Tanzania Bara, Visiwani, na Kanda ya Ziwa – Pamoja
-
-# I. TAMU KALI NI NINI?
-Tamu kama asali ya mzinga.
-Kali kama panga la kufyeka magugu.
-Si jina la kufurahia.
-Ni roho ya kijiji kinachojenga tabia ambayo inavunja mfumo wa UMASIKINI na UJINGA.
-Tamu Kali si mradi.
-Ni maisha.
-Ni tabia.
-Ni vita ya kila siku dhidi ya mfumo unaotufanya wageni katika ardhi yetu.
-
-# II. MFUMO UNAOTUTAWA
-Mfumo una jina:
-
-UMASIKINI – mshahara wa TZS 30,000, mkopo wa 15% 
-UJINGA – shule ya “kukariri”
-
-
-# III. TABIA YA TAMU KALI
-Tabia saba za kijiji cha maendeleo:
-
-1. Umoja wa Ardhi. Ardhi si ya mtu. Ni ya watu Kila ekari inamilikiwa na jamii. Mgeni hulipa ishara, hamiliki.
-
-2. Kazi ya Pamoja70% ya jasho ni la jamii. 30% ni lako.Hakuna mtu anayekufa njaa. Hakuna mtu anayehifadhi peke yake.
-
-3. Akili TatuKila mtoto anajua Kiswahili, Msimbo, Udongo.Kufikia miaka 12, anavunja mfumo.
-
-4. Hazina Takatifu50% inarudi ardhi, 30% akili, 20% ulinzi.Benki haiingii.
-
-5. Sheria ya MchangoHachangii, haishi.Mfumo haupati nafasi.
-
-6. Ukarimu wa BusaraDunia inakuja kama mgeni, si bwana.Biashara inafanyika, lakini jamii inamiliki.
-
-7. Harakati ya UkamilifuHatutafuti paradiso. Tunajenga ngome isiyoweza kuvunjika.Kila siku ni vita.
-
-# IV. KIJIJI CHA TAMU KALI: MUUNDO
-**Mahali: Morogoro, Dodoma, Mwanza, Zanzibar, Kigoma – kila mahali ambapo Kiswahili kinaishi.
-Muundo: Kama moyo unaopiga.** 
-          [JAMII YA MOYO]
-             /    \
-   [SHULE] — [ZAHANATI] — [HAZINA]
-             |     |
-       [NYUMBA] [SHAMBA]
-             |     |
-      [JUA] [MAJI] [UA HAI]
