@@ -5,20 +5,27 @@ Tamu Kali - Hisia Yakula Embe chachu na chumvi
 
 This are not merely thoughts. They will change the way you think, be adviced I am 
 writting this to influence your mind. If your frontal lobe is not developed or 
-kama wewe ni MSOMI na hauja Elimika Achana na
+kama wewe ni **MSOMI** na hauja Elimika Achana na hii.
 
-**USISOME NYARAKA HII TAFADHALI NINA KUSII**. **DO NOT READ THIS**
+# USISOME NYARAKA HII TAFADHALI NINA KUSII**.
+**DO NOT READ THIS**
 <img width="955" height="596" alt="Screenshot 2025-11-08 at 17 36 03" src="https://github.com/user-attachments/assets/8af7c344-03d6-4c6f-b391-4a3e8825e61a" />
 
 
-If your still here let me paint you a picture, But before you dive into this world Understand, we are not in competition about who is right or wrong if you merely think
-like this your still in-doctrinated by design. Iko ivi, I am going to be sharing with you a secret to unlock a new life experience, ili uachane na kushindana kimawazo 
-maisha sio mashindano, maisha ni kuelewa mifumo yake ili upata experience nzuri ya maisha atakama changamoto ziki kukuta. Siri hii ya mafanikio najua
-ndio kitu kikubwa wengi wenu mnakitafuta. Ndio, Notice nimesema wengi wenu, kwasababu sisi sio kama nyie, elewa hili, Kwasababu ukisha elewa hili
+If your still here let me paint you a picture, But before you dive into this world Understand, we are not in competition about who is **right or wrong** if you merely think
+like this your still in-doctrinated by design.
+
+Iko ivi, I am going to be sharing with you a secret to unlock a new life experience, ili uachane na kushindana kimawazo. 
+Maisha sio mashindano, maisha ni kuelewa mifumo yake ili upata experience nzuri ya maisha atakama changamoto ziki kukuta. 
+
+Siri hii ya mafanikio najua ndio kitu kikubwa wengi wenu mnakitafuta. Ndio, Notice nimesema wengi wenu, kwasababu sisi sio kama nyie, elewa hili, Kwasababu ukisha elewa hili
 baada yakuelewa Malengo ya Nyaraka hii utakuwa kama sisi, na ukisha KUWA huwezi kuridi nyuma tena. 
 
-# SASA ngoja nitimize ahadi yangu. SIRI YA MAFANIKIO NI KUSHEA RIZIKI _ Anae kwambia vinginevo ni muongo. Sasa wewe bishana.
-Okay lets move one 
+**SASA ngoja nitimize ahadi yangu yakukupa wewe siri ya mafanikio**
+
+# SIRI YA MAFANIKIO NI KUSHEA RIZIKI _ Anae kwambia vinginevo ni muongo. Sasa wewe bishana.
+
+Okay lets move on
 
 Kuna vita kubwa inaendelea Dunia kila wakati na ni muhimu uelewe vita hii niya nini. Dunia inakupigania wewe, Ndio WEWE HAPO. Najua bado huja nisoma
 sasa elewa hivi. Wewe ni rasilimali kama rasilimali zingine, Kwasababu gani sasa? Wewe ni mmiliki wa Ardhi, na kama wewe sio ujue kwamba wewe ni mfanyakazi 
