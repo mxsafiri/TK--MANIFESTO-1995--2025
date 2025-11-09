@@ -49,8 +49,8 @@ They are systmes forged by hands of **Demand and Supply**, tightened by **self-s
 # Be careful you don't look at hii mifumo as flaws, don't fight them as an emeny, No. Understand it for 
 # what it is. A system. 
 
-A systme has governance, au protocol kwa lugha rahisi. Utaratibu ndio msingi wa
-systme yeyote, kuanzia ya duni mpaka ya juu.
+A systme has governance, au protocol kwa lugha rahisi. **Utaratibu ndio msingi** wa
+systme yeyote, kuanzia ya **duni** mpaka ya **juu**.
 
 **Sasa Elewa pia UMASIKINI is a vampire system: It drains your harvest, pawns your land, and sells your future at x% interest.**
 
@@ -77,30 +77,27 @@ UJINGA is a blindfold (Kiini Macho): It traps your children in schools that teac
 
 
 # Kwa Pamoja hii mifumo ndio ADUI wetu 
-Mifumo ya kutufanya wageni katika ardhi yetu.
 
-Mifumo ya kutufanya wajakazi wa hadithi za wengine.
-
-hawa ndio maadui wa pamoja tunao takiwa kuwapinga kwa nguvu zetu zote mpaka kifo na umauti
-Hatupigani sisi kwa sisi.
-Tunavunja systme izi mbili tu.
-
-Ngoja nikuchote Akili kidogo. Je, Unajua kuwa **Duniani kuna script?** Mindset yaku inaweza kubadilisha vitu katika maisha yako.
-hii ni phenomal kubwa kwa maisha ya karne hii. Maisha yetu yana **tofauti kubwa na exposure ya dunia**. So naturally dunia yako 
+Ngoja nikuchote Akili kidogo. Je, Unajua kuwa **Duniani kuna script?** 
+Mindset yak0 inaweza kubadilisha vitu katika maisha yako.
+hii ni phenomenal kubwa kwa maisha ya karne hii. Maisha yetu yana **tofauti kubwa na exposure yetu ya dunia**. So naturally dunia yako 
 inakuwa ina **infiriorty conflict** kwasabau wewe hujaandika **hio script ya reality yako.** Sio kesi tusiende uko.
 
-Nachojaribu Kukuonesha kwa upeo wako uone, **sisi tuko wengi**. Wewe, watu kama wewe na mimi. Fantasy ya maisha yetu na,
-**miundo-mbinu yetu** **haiwezi kutupatia wote**.**Huduma sawa, katika ubora sawa, kwa mahitaji yetu wote**. Sasa ukisha meza hilo, 
+Nachojaribu Kukuonesha kwa upeo wako uone, **sisi tuko wengi**. Ndio, watu kama wewe na mimi tuko wengi. Fantasy ya maisha yetu na,
+**miundo-mbinu yetu** **haina uwezo wakutupatia wote**.**Huduma sawa, katika ubora sawa, kwa mahitaji yetu wote**. Sasa ukisha meza hilo, 
 
-karibu nikoneshe njisi gani ni muhimu kutambua **mazingira yako**. Sio kwa kutoka nje bali hadi **tabia zako na wazazi wako na watu wezanko
-na dunia nzima** ili ujue kwa nini, iko ivo. Ndio, hadi kabila lako, wenginewenu mtajifanya hamna kabila, jiulize kwanini waafirka wana makabila. 
+karibu nikuoneshe njisi gani ni muhimu kutambua **mazingira yako**. Sio kwa kutoka nje bali hadi **tabia zako na wazazi wako na watu wezanko
+na dunia nzima** ili ujue kwa nini, iko ivo. Ndio, hadi kabila lako, wenginewenu mtajifanya hamna kabila, jiulize kwanini wa Afrika wana makabila. 
 Nataka uelewe ili utambue. Unakumbuka hapo juu nilikwabia **UMMA ndio ina nguvu**. Kujilinda nikulindana, hio ni siri nyinge nakuibia ya ndani.
 Jamii zinazo zungumza Lugha mmoja, ningumu sana kutawaliwa. **Lunga ni Operating Systme ya UBONGO**.
 
-Siwezi kukwabia kila kitu ila tambua hii ni safari umeanza, yote unayo yataka utayapata. **Mtanzamo wako ndio tofauti yako na kituchako unacho
-kitaka**. Soma tena hio sentensi. Muongope Mungu, Au kama wewe mbishi sana ogopa idea ya "UMUNGU" Heshimu kitu chochote watu wanacho kiamini 
-Imani inaleta **MATUMAINI yani HOPE**. Sasa Safari yako, **shida zako za maishani** na malezi yako. Kuwa muangalifu yasikufanye uwe na fikira potovu.
+Siwezi kukwabia kila kitu ila tambua hii ni safari ume anza, yote unayo yataka utayapata. **Mtanzamo wako ndio tofauti yako na kitu chako unacho
+kitaka**. Soma tena hio sentensi. Muongope Mungu, Au kama wewe mbishi sana ogopa idea ya "UMUNGU". Heshimu kitu chochote watu wanacho kiamini 
+Imani inaleta **MATUMAINI yani HOPE**. Kuwa muangalifu yasikufanye uwe na fikira potovu. Shiriki Kwenye nguvu ya **UMMA** Kama wewe ni Mbongo ni 
+Jukumu lako **_kujenga_** **Ubongo** wako, **mali** zako, **vitu** vyako na vya **wenzako** . ili **SIRI KALI YAKO** ukulinde nakutunza mali zako. 
 
+Nimalize kwa maelekezo haya. Shiriki kwenye uvumbuzi waku tatua shinda za mazingira yako, MTAA _KWA MTAA. Kumbuka juu nilikupa picha ya AKILI ni nini
+Tambua pia Kuna RIZIKI kila kona ya maisha, Sikulishi matango pori. Kwenye hii file. Kuna Branch. Its your task to find the re-po and fork the repo- to Run ***
 
 ## Hili ni Azimio la Ujenzi wa Tabia Maendeleo ya Jamii za Kiswahili
 Wa-Tanzania Bara, Visiwani, na Kanda ya Ziwa – huu ni mpango halisi wa ujenzi, unaotegemea tabia za Kiswahili 
